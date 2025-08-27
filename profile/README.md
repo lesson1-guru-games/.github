@@ -13,57 +13,57 @@
 <p dir="auto"><strong>Unblocked Games 76</strong> is a popular platform that allows students and workers to enjoy <strong>free browser-based games</strong> anywhere — even on restricted networks.<br>
 It also connects you to useful study resources like <strong>Lesson-5.guru</strong> and <strong>SubjectNotes.website</strong>, making it the perfect balance between fun and learning.</p>
 <blockquote>
-<p dir="auto">✅ Keywords: <em>Unblocked Games 76, free unblocked games, play at school, online study notes, quick lessons, browser games</em></p>
+<p dir="auto">✅ Keywords: <em>Unblocked Games 76, play free games online, school fun games, browser-based learning, study and play, no-block games</em></p>
 </blockquote>
 <hr>
-<div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">Why Choose Unblocked Games 76?</h2><a id="user-content-why-choose-unblocked-games-76" class="anchor" aria-label="Permalink: Why Choose Unblocked Games 76?" href="#why-choose-unblocked-games-76"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
+<div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">Why Play on Unblocked Games 76?</h2><a id="user-content-why-play-on-unblocked-games-76" class="anchor" aria-label="Permalink: Why Play on Unblocked Games 76?" href="#why-play-on-unblocked-games-76"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
 <ul dir="auto">
-<li>🕹️ <strong>Hundreds of Free Games</strong> — Action, puzzle, strategy, sports, and more</li>
-<li>🔓 <strong>Unblocked Access</strong> — Play at school, college, or work without VPNs</li>
-<li>📚 <strong>Learn &amp; Play</strong> — With links to <a href="https://lesson-5.guru" rel="nofollow">Lesson-5.guru</a> and <a href="https://subjectnotes.website/" rel="nofollow">SubjectNotes.website</a></li>
-<li>📱 <strong>Cross-Platform</strong> — Works on PC, Chromebook, and mobile</li>
+<li>🎮 <strong>Massive Game Library</strong> — Racing, arcade, adventure, and logic games</li>
+<li>🔑 <strong>No Restrictions</strong> — Works in schools, offices, and libraries</li>
+<li>📖 <strong>Study + Fun</strong> — Linked with <a href="https://lesson-5.guru" rel="nofollow">Lesson-5.guru</a> and <a href="https://subjectnotes.website/" rel="nofollow">SubjectNotes.website</a></li>
+<li>💻 <strong>All Devices Supported</strong> — PC, Mac, iOS, Android, Chromebook</li>
 </ul>
 <hr>
-<div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">Popular Games You Can Play</h2><a id="user-content-popular-games-you-can-play" class="anchor" aria-label="Permalink: Popular Games You Can Play" href="#popular-games-you-can-play"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
+<div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">Top Games Available</h2><a id="user-content-top-games-available" class="anchor" aria-label="Permalink: Top Games Available" href="#top-games-available"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
 <ul dir="auto">
-<li><strong>Run 3</strong> – Space-themed endless runner</li>
-<li><strong>Retro Bowl</strong> – Classic football sim + strategy</li>
-<li><strong>Happy Wheels</strong> – Wild ragdoll obstacle game</li>
-<li><strong>Shell Shockers</strong> – Egg-based multiplayer shooter</li>
-<li><strong>1v1.LOL</strong> – Build and shoot battle arena</li>
+<li><strong>Subway Surfers</strong> – Endless running adventure</li>
+<li><strong>Drift Boss</strong> – Casual car drifting game</li>
+<li><strong>Basketball Stars</strong> – Fast-paced multiplayer sports</li>
+<li><strong>Geometry Dash</strong> – Rhythm-based platform challenge</li>
+<li><strong>Slither.io</strong> – Snake battle in real time</li>
 </ul>
 <hr>
-<div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">How to Play</h2><a id="user-content-how-to-play" class="anchor" aria-label="Permalink: How to Play" href="#how-to-play"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
+<div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">How to Get Started</h2><a id="user-content-how-to-get-started" class="anchor" aria-label="Permalink: How to Get Started" href="#how-to-get-started"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
 <ol dir="auto">
-<li>Visit <strong>Unblocked Games 76</strong> or click one of the big <strong>Play buttons above</strong>.</li>
-<li>Select your game or lesson resource.</li>
-<li>Start playing instantly — no download or sign-up required.</li>
+<li>Go to <strong>Unblocked Games 76</strong>.</li>
+<li>Pick your favorite game from the menu.</li>
+<li>Click and start playing — no installs, no signup.</li>
 </ol>
 <hr>
-<div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">Controls (General for Most Games)</h2><a id="user-content-controls-general-for-most-games" class="anchor" aria-label="Permalink: Controls (General for Most Games)" href="#controls-general-for-most-games"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
-<div class="highlight highlight-text-adblock notranslate position-relative overflow-auto" dir="auto" data-snippet-clipboard-copy-content="W A S D / Arrow Keys = Move
-Space = Jump or Attack
-Mouse = Aim / Interact
-Esc = Pause"><pre>W A S D / Arrow Keys = Move
-Space = Jump or Attack
-Mouse = Aim / Interact
-Esc = Pause</pre></div>
+<div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">Controls (Typical)</h2><a id="user-content-controls-typical" class="anchor" aria-label="Permalink: Controls (Typical)" href="#controls-typical"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
+<div class="highlight highlight-text-adblock notranslate position-relative overflow-auto" dir="auto" data-snippet-clipboard-copy-content="Arrow Keys / WASD = Move
+Space = Jump
+Mouse = Aim / Shoot
+Enter = Confirm"><pre>Arrow Keys / WASD = Move
+Space = Jump
+Mouse = Aim / Shoot
+Enter = Confirm</pre></div>
 <hr>
-<div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">Learning + Gaming Combo</h2><a id="user-content-learning--gaming-combo" class="anchor" aria-label="Permalink: Learning + Gaming Combo" href="#learning--gaming-combo"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
-<p dir="auto">Unblocked Games 76 isn’t just about fun. With direct access to:</p>
+<div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">Play + Learn Together</h2><a id="user-content-play--learn-together" class="anchor" aria-label="Permalink: Play + Learn Together" href="#play--learn-together"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
+<p dir="auto">Unblocked Games 76 helps you enjoy games while staying connected to study tools:</p>
 <ul dir="auto">
-<li>🚀 <a href="https://lesson-5.guru" rel="nofollow">Lesson-5.guru</a> → Quick online lessons</li>
-<li>🎒 <a href="https://subjectnotes.website/" rel="nofollow">SubjectNotes.website</a> → Study notes &amp; educational content</li>
+<li>📘 <a href="https://lesson-5.guru" rel="nofollow">Lesson-5.guru</a> → Bite-sized tutorials</li>
+<li>📝 <a href="https://subjectnotes.website/" rel="nofollow">SubjectNotes.website</a> → Organized study notes</li>
 </ul>
-<p dir="auto">…you can <strong>balance entertainment and education</strong> in one place.</p>
+<p dir="auto">A perfect balance between <strong>relaxation and productivity</strong>.</p>
 <hr>
-<div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">SEO Optimized FAQ</h2><a id="user-content-seo-optimized-faq" class="anchor" aria-label="Permalink: SEO Optimized FAQ" href="#seo-optimized-faq"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
-<p dir="auto"><strong>Q: Is Unblocked Games 76 free?</strong>
-Yes, all games are free to play online.</p>
-<p dir="auto"><strong>Q: Can I play on mobile?</strong>
-Yes, most games are mobile-friendly and work on touch devices.</p>
-<p dir="auto"><strong>Q: Are Lesson-5.guru and SubjectNotes.website safe?</strong>
-Yes, both sites are safe, kid-friendly, and built for learning.</p>
+<div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">SEO-Friendly FAQ</h2><a id="user-content-seo-friendly-faq" class="anchor" aria-label="Permalink: SEO-Friendly FAQ" href="#seo-friendly-faq"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
+<p dir="auto"><strong>Q: Is it free to play?</strong><br>
+Yes! Every game on Unblocked Games 76 is 100% free.</p>
+<p dir="auto"><strong>Q: Can I use it on my tablet?</strong><br>
+Of course, it runs smoothly on mobile and tablet browsers.</p>
+<p dir="auto"><strong>Q: Are the study sites safe?</strong><br>
+Yes, Lesson-5.guru and SubjectNotes.website are secure and ad-free learning hubs.</p>
 <hr>
 <div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">Useful Links</h2><a id="user-content-useful-links" class="anchor" aria-label="Permalink: Useful Links" href="#useful-links"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
 <ul dir="auto">

@@ -20,7 +20,7 @@ It also connects you to useful study resources like <strong>Lesson-5.guru</stron
 <ul dir="auto">
 <li>🎮 <strong>Massive Game Library</strong> — Racing, arcade, adventure, and logic games</li>
 <li>🔑 <strong>No Restrictions</strong> — Works in schools, offices, and libraries</li>
-<li>📖 <strong>Study + Fun</strong> — Linked with <a href="https://lesson-5.guru" rel="nofollow">Lesson-5.guru</a> and <a href="https://subjectnotes.website/" rel="nofollow">SubjectNotes.website</a></li>
+<li>📖 <strong>Study + Fun</strong> — Linked with <a href="https://biolyze.space" rel="nofollow">Biolyze.space</a> and <a href="https://subjectnotes2.website/" rel="nofollow">SubjectNotes.website</a></li>
 <li>💻 <strong>All Devices Supported</strong> — PC, Mac, iOS, Android, Chromebook</li>
 </ul>
 <hr>
@@ -67,7 +67,7 @@ Yes, Lesson-5.guru and SubjectNotes.website are secure and ad-free learning hubs
 <hr>
 <div class="markdown-heading" dir="auto"><h2 class="heading-element" dir="auto">Useful Links</h2><a id="user-content-useful-links" class="anchor" aria-label="Permalink: Useful Links" href="#useful-links"><svg class="octicon octicon-link" viewBox="0 0 16 16" version="1.1" width="16" height="16" aria-hidden="true"><path d="m7.775 3.275 1.25-1.25a3.5 3.5 0 1 1 4.95 4.95l-2.5 2.5a3.5 3.5 0 0 1-4.95 0 .751.751 0 0 1 .018-1.042.751.751 0 0 1 1.042-.018 1.998 1.998 0 0 0 2.83 0l2.5-2.5a2.002 2.002 0 0 0-2.83-2.83l-1.25 1.25a.751.751 0 0 1-1.042-.018.751.751 0 0 1-.018-1.042Zm-4.69 9.64a1.998 1.998 0 0 0 2.83 0l1.25-1.25a.751.751 0 0 1 1.042.018.751.751 0 0 1 .018 1.042l-1.25 1.25a3.5 3.5 0 1 1-4.95-4.95l2.5-2.5a3.5 3.5 0 0 1 4.95 0 .751.751 0 0 1-.018 1.042.751.751 0 0 1-1.042.018 1.998 1.998 0 0 0-2.83 0l-2.5 2.5a1.998 1.998 0 0 0 0 2.83Z"></path></svg></a></div>
 <ul dir="auto">
-<li>🌐 <strong>Play Games &amp; Lessons</strong>: <a href="https://lesson-5.guru" rel="nofollow">Lesson-5.guru</a> | <a href="https://subjectnotes.website/" rel="nofollow">SubjectNotes.website</a></li>
+<li>🌐 <strong>Play Games &amp; Lessons</strong>: <a href="https://lesson-5.guru" rel="nofollow">Lesson-5.guru</a> | <a href="https://subjectnotes2.website/" rel="nofollow">SubjectNotes2.website</a></li>
 <li>📘 Community guides and tips available online</li>
 <li>🎮 Great for study breaks or quick fun</li>
 </ul>
